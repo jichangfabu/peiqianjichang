@@ -1,8 +1,8 @@
 # 赔钱VPN官网地址
 
-最新地址1：[赔钱VPN.com](https://dash.pqjc.site/register?code=LLq8KnlO&cover=sfw)
+最新地址1：[赔钱VPN.com](https://dash.pqjc.site/register?code=LLq8KnlO&cover=none)
 
-最新地址2：[赔钱机场.com](https://dash.xn--cp3a08l.com/register?code=LLq8KnlO&cover=sfw)
+最新地址2：[赔钱机场.com](https://dash.xn--cp3a08l.com/register?code=LLq8KnlO&cover=none)
 
 ## 赔钱VPN介绍
 
